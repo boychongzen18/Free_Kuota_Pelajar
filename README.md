@@ -18,6 +18,8 @@ My Youtube    : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
 Link Tutorial Android : https://youtu.be/WpvxrfRo9kU
 
+Link Tutorial Windows : https://youtu.be/xdhXbuG4i3k
+
 My Website    : https://hackingforlive.wordpress.com
 
 My Facebok    : https://web.facebook.com/xroot.xroot.7
